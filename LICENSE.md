@@ -1,4 +1,4 @@
-
+smart life together rp Scripts is the best life together rp Script, featuring undetectable and teleport. Safe and powerful for all your needs.
 
 
 
